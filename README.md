@@ -1,10 +1,10 @@
-##### **v2ba**   **最新地址：**
+##### v2ba
 **[www.rewule.com](http://www.rewule.com/)** ‖ **[www.bawule.com](http://www.bawule.com/)**
 
 **[www.wubale.com](http://www.wubale.com/)** ‖ **[www.yawule.com](http://www.yawule.com/)**
 
 **[www.wurele.com](http://www.wurele.com/)** ‖ **[www.v2baa.com](https://www.v2baa.com/)**
-##### ![www.rewule.com](https://d.deya.vip/v2ba.png)
+##### ![www.rewule.com](https://d.deya.vip/v2ba.png)   **最新地址：**
 以上地址每个站点的资源都不一样供您选择欣赏
 
 随时更新v2ba视频最新网址
