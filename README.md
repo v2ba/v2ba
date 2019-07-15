@@ -1,7 +1,4 @@
-# ![](https://d.deya.vip/v2ba.png)
-### v2ba最新地址：
-**[v2ba](https://www.v2ba.xyz/)**
-
+### v2ba
 **[www.rewule.com](http://www.rewule.com/)**
 
 **[www.bawule.com](http://www.bawule.com/)**
