@@ -1,5 +1,5 @@
 ##### v2ba
-**[www.rewule.com](http://www.rewule.com/)** ‖ **[www.bawule.com](http://www.bawule.com/)**
+**[www.rewule.com](https://www.rewule.com/)** ‖ **[www.bawule.com](https://www.azxwo.com/)**
 
 **[www.wubale.com](http://www.wubale.com/)** ‖ **[www.yawule.com](http://www.yawule.com/)**
 
