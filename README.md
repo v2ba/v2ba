@@ -1,15 +1,16 @@
 # ![](https://d.deya.vip/v2ba.png)
-# v2ba最新地址：
+### v2ba最新地址：
+**[v2ba](https://www.v2ba.xyz/)**
 
-# **[www.rewule.com](http://www.rewule.com/)**
+**[www.rewule.com](http://www.rewule.com/)**
 
-# **[www.bawule.com](http://www.bawule.com/)**
+**[www.bawule.com](http://www.bawule.com/)**
 
-# **[www.wubale.com](http://www.wubale.com/)**
+**[www.wubale.com](http://www.wubale.com/)**
 
-# **[www.yawule.com](http://www.yawule.com/)**
+**[www.yawule.com](http://www.yawule.com/)**
 
-# **[www.wurele.com](http://www.wurele.com/)**
+**[www.wurele.com](http://www.wurele.com/)**
 
 以上地址每个站点的资源都不一样供您选择欣赏
 
