@@ -1,9 +1,9 @@
 ##### v2ba
 **[www.rewule.com](https://www.rewule.com/)** ‖ **[www.bawule.com](https://www.azxwo.com/)**
 
-**[www.wubale.com](http://www.wubale.com/)** ‖ **[www.yawule.com](http://www.yawule.com/)**
+**[www.wubale.com](https://www.azxle.com/)** ‖ **[www.yawule.com](https://www.wuyale.com/)**
 
-**[www.wurele.com](http://www.wurele.com/)** ‖ **[www.v2ba.xyz](https://www.v2ba.pw/)**
+**[www.wurele.com](https://www.wov2.com/)** ‖ **[www.v2ba.xyz](https://www.v2ba.pw/)**
 ##### ![](https://d.deya.vip/v2ba.png)
 以上地址每个站点的资源都不一样供您选择欣赏
 
