@@ -3,7 +3,7 @@
 
 **[www.wubale.com](https://www.azxle.com/)** ‖ **[www.yawule.com](https://www.wuyale.com/)**
 
-**[www.wurele.com](https://www.wov2.com/)** ‖ **[www.v2ba.xyz](https://www.v2ba.pw/)**
+**[www.wurele.com](https://www.wov2.com/)** ‖ **[www.v2ba.xyz](https://www.v2ba.live/)**
 ##### ![](https://d.deya.vip/v2ba.png)
 以上地址每个站点的资源都不一样供您选择欣赏
 
