@@ -4,7 +4,7 @@
 **[www.wubale.com](https://www.azxle.com/)** ‖ **[www.yawule.com](https://www.wuyale.com/)**
 
 **[www.wurele.com](https://www.wov2.com/)** ‖ **[www.v2ba.xyz](https://www.rewule.com/)**
-##### ![](https://d.deya.vip/v2ba.png)
+##### ![](https://v2ba.github.io/a.png)
 以上地址每个站点的资源都不一样供您选择欣赏
 
 随时更新v2ba视频最新网址
@@ -15,7 +15,7 @@
 
 请收藏这个页面。如果发现打不开或者被跳转的情况，请及时联系v2ba@gmx.com
 
-![](http://d.deya.vip/asdasd.png)
+![](https://v2ba.github.io/b.png)
 
 公告：
 
