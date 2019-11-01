@@ -1,9 +1,9 @@
 ##### v2ba
-**[www.rewule.com](https://www.v2ba.space/)** ‖ **[www.bawule.com](https://www.azxwo.com/)**
+**[www.rewule.com](https://www.v2ba.space//index.html)** ‖ **[www.bawule.com](https://www.azxwo.com//index.html)**
 
-**[www.wubale.com](https://www.azxle.com/)** ‖ **[www.yawule.com](https://www.wuyale.com/)**
+**[www.wubale.com](https://www.azxle.com//index.html)** ‖ **[www.yawule.com](https://www.wuyale.com//index.html)**
 
-**[www.wurele.com](https://www.wov2.com/)** ‖ **[www.v2ba.xyz](https://www.rewule.com/)**
+**[www.wurele.com](https://www.wov2.com//index.html)** ‖ **[www.v2ba.xyz](https://www.rewule.com//index.html)**
 ##### ![](https://sc02.alicdn.com/kf/U4a27fdb21a9740e1b0056983a27005d56/239274992/U4a27fdb21a9740e1b0056983a27005d56.png)
 以上地址每个站点的资源都不一样供您选择欣赏
 
