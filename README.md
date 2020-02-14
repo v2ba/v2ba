@@ -4,8 +4,8 @@
 **[www.wubare.com](https://www.wubare.com/index.html)** ‖ **[www.yawure.com](https://www.yawure.com/index.html)**
 
 **[www.bawure.com](https://www.bawure.com/index.html)** ‖ **[www.v2ba.xyz](https://www.rewure.com/index.html)**
-##### ![](https://sc02.alicdn.com/kf/U4a27fdb21a9740e1b0056983a27005d56/239274992/U4a27fdb21a9740e1b0056983a27005d56.png)
 以上地址每个站点的资源都不一样供您选择欣赏
+##### ![](https://sc02.alicdn.com/kf/U4a27fdb21a9740e1b0056983a27005d56/239274992/U4a27fdb21a9740e1b0056983a27005d56.png)
 
 随时更新v2ba视频最新网址
 
