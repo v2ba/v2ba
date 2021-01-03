@@ -1,7 +1,7 @@
 ##### v2ba
-**[www.ddvzz.com](https://www.v2ba9.info/index.html)** ‖ **[www.bbvvd.com](https://www.bbvvd.com/index.html)**
+**[www.ddvzz.com](https://www.v2bax.xyz/index.html)** ‖ **[www.bbvvd.com](https://www.bbvvd.com/index.html)**
 
-**[www.ttepp.com](https://www.ttepp.com/index.html)** ‖ **[www.ctvav.com](https://www.yawure.com/index.html)**
+**[www.ttepp.com](https://www.ttepp.com/index.html)** ‖ **[www.ctvav.com](https://www.v2bay.xyz/index.html)**
 
 **[www.raaav.com](https://www.raaav.com/index.html)** ‖ **[www.v2ba.xyz](https://www.ddvzz.com/index.html)**
 
