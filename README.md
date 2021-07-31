@@ -17,7 +17,7 @@
 
 请收藏这个页面。如果发现打不开或者被跳转的情况，请及时联系v2ba@gmx.com
 
-![](https://sc01.alicdn.com/kf/U51068c222e204f62bfc3614d313a78e26/239274992/U51068c222e204f62bfc3614d313a78e26.png)
+![](https://sc04.alicdn.com/kf/U9200f1f6193d4f589035f799549d17eeL/239274992/U9200f1f6193d4f589035f799549d17eeL.png)
 
 公告：
 
