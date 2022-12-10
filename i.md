@@ -1,6 +1,7 @@
 ##### v2ba
 
 最新地址（截图保存）：
+https://www.jdav.bet
 
 https://www.mmvv.xyz
 
@@ -11,8 +12,6 @@ https://www.vvii.xyz
 https://www.vvff.xyz
 
 https://www.ssaa.xyz
-
-https://www.ooaa.xyz
 
 https://www.ooaa.xyz
 
