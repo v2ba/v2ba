@@ -1,6 +1,6 @@
 ##### v2ba
 <h1>www.v2ba.pub</h1>
-<h2>❤️ 👉 【重要提醒】收藏 简单AV网-免费视频 www.jdav.app，避免迷路！</h2>
+<h2>❤️ 👉 【重要提醒】收藏 简单AV网-免费视频 www.jdav.app/ ，避免迷路！</h2>
 <h2>❤️ 👉 【地址1】 ： <a href="https://www.jdavv.com">屁屁影院</a> </h2>
 <h2>❤️ 👉 【地址2】 ： <a href="https://www.jdav.club">草草影院</a> </h2>
 <h2>❤️ 👉 【地址3】 ： <a href="https://www.jdav.bet">牛牛影院</a> </h2>
