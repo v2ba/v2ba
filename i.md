@@ -2,8 +2,6 @@
 
 最新地址（截图保存）：
 
-https://www.jdav.bet
-
 https://www.mmvv.xyz
 
 https://www.nnvv.xyz
@@ -17,8 +15,6 @@ https://www.ssaa.xyz
 https://www.ooaa.xyz
 
 https://www.oovv.xyz
-
-https://www.vnvn.xyz
 
 https://www.jdav.space
 
